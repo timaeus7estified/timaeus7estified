@@ -1,7 +1,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![ic   rozalieur on twt](https://files.catbox.moe/xojxx4.png)](https://x.com/Rozalieur)ㅤ
 ⠀ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@mor)⠀mychael
+
 ㅤ੭   ﾟׅ   *5*teen⠀⁠♱⠀fem*masc* achillean
+
 chronically ill , semi-hiatus
+
 ⠀⠀⠀[rentry](https://rentry.co/vilest)⠀[neospring](https://neospring.org/@fluoride)⠀[friendlist](https://rentry.co/mors-friendlist)
 
 ⠀
