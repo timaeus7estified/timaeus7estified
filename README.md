@@ -5,7 +5,7 @@
 
 ⠀⠀⠀ chronically ill , semi-hiatus
 
-⠀⠀⠀ ⠀[rentry](https://rentry.co/vilest)⠀[neospring](https://neospring.org/@fluoride)⠀[friendlist](https://rentry.co/mors-friendlist)
+⠀⠀⠀ ⠀[rentry](https://rentry.co/vilest)⠀[neospring](https://neospring.org/@fluoride)⠀[friendlist](https://rentry.co/witheringhope)
 <!-- This content will not appear in the rendered Markdown -->
 
 ⠀
