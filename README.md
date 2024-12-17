@@ -3,7 +3,7 @@
 
 ⠀⠀ ㅤ੭   ﾟׅ   *5*teen⠀⁠♱⠀fem*masc* achillean
 
-⠀⠀⠀ chronically ill , semi-hiatus
+⠀⠀⠀ hsrㅤ&ㅤidv 𓋜ㅤfilojp
 
 ⠀⠀⠀ ⠀[rentry](https://rentry.co/vilest)⠀[neospring](https://neospring.org/@paranormal)⠀[friendlist](https://rentry.co/witheringhope)
 <!-- This content will not appear in the rendered Markdown -->
