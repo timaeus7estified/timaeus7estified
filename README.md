@@ -1,3 +1,4 @@
+profile + links are best viewed on mobile
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/6wqc3f.png)
 ⠀⠀ ⠀ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael
 
