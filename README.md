@@ -1,9 +1,9 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/riwq89.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/6wqc3f.png)
 ⠀⠀ ⠀ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael
 
 ⠀⠀ ㅤ੭   ﾟׅ   *5*teen⠀⁠♱⠀fem*masc* achillean
 
-⠀⠀⠀ kapampangan/eng/tagㅤ𓋜ㅤfilojp
+⠀⠀⠀ mainly alone on ptㅤ𓋜ㅤfilojp
 
 ⠀⠀⠀ ⠀[rentry](https://rentry.co/vilest)⠀[neospring](https://neospring.org/@paranormal)⠀[friendlist](https://rentry.co/witheringhope)
 <!-- This content will not appear in the rendered Markdown -->
