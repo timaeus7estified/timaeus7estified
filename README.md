@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![ic   rozalieur on twt](https://files.catbox.moe/xojxx4.png)](https://x.com/Rozalieur)ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/riwq89.png)
 ⠀⠀ ⠀ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael
 
 ⠀⠀ ㅤ੭   ﾟׅ   *5*teen⠀⁠♱⠀fem*masc* achillean
