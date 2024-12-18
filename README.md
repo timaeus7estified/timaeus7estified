@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/fv38rd.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/qsba7t.png)
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael
