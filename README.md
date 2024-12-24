@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/ey35gv.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/k9c1lx.png)
 <!-- replace username and color and label --> 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=80241d&style=for-the-badge&label=(⁠*⁠´.｀⁠*⁠)"></p>
 
