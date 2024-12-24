@@ -1,6 +1,5 @@
 <p align="center"><img src="https://64.media.tumblr.com/0f70e149ee810226ef994721d7830d57/f4ae1055fc1e8cd8-bb/s1280x1920/803ee242ebd3c957d43f3a327b41b8048aa33273.pnj"></p>
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/k9c1lx.png)
+<p align="center"><img src="https://files.catbox.moe/k9c1lx.png"></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=80241d&style=for-the-badge&label=(⁠*⁠´.｀⁠*⁠)"></p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀      ⠀⠀⠀ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael 
