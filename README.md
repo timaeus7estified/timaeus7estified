@@ -1,7 +1,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![𓋜](https://files.catbox.moe/ey35gv.png)
+<!-- replace username and color and label --> 
+<p align="center"><img src="https://komarev.com/ghpvc/?username=usernamehere&color=008C0D&style=for-the-badge&label=visitors:"></p>
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael
+<p align="center">< ㅤ۫ೀ⠀mors⠀[or](https://pronouns.cc/@paranormal)⠀mychael ></p>
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀      ⠀⠀⠀ ﾟׅ   *5*teen⠀⁠♱⠀fem*masc* achillean
