@@ -16,7 +16,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⠀mainly alone on ptㅤ𓋜ㅤfilojp
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/vilest)⠀[neospring](https://neospring.org/@paranormal)⠀[friendlist](https://rentry.co/witheringhope)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[neospring](https://neospring.org/@paranormal)⠀[friendlist](https://rentry.co/witheringhope)
 ⠀
 
 ⠀
