@@ -1,4 +1,4 @@
-<p align="center"><img src="https://64.media.tumblr.com/0f70e149ee810226ef994721d7830d57/f4ae1055fc1e8cd8-bb/s1280x1920/803ee242ebd3c957d43f3a327b41b8048aa33273.pnj"></p>
+
 <p align="center"><img src="https://files.catbox.moe/sdrauj.png" width="50%" height="50%"></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=c7b09b&style=for-the-badge&label=(⁠*⁠´.｀⁠*⁠)&style=plastic"></p>
 
@@ -17,7 +17,3 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[neospring](https://neospring.org/@paranormal)⠀[friendlist](https://rentry.co/witheringhope)
-⠀
-
-⠀
-<p align="center"><img src="https://64.media.tumblr.com/b9477c1d61658f113b19ae65a191ff7a/f4ae1055fc1e8cd8-9a/s1280x1920/cb5912b0aa31eedf30e544317dee13195d606474.pnj"></p>
