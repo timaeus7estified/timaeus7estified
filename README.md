@@ -9,7 +9,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀      ⠀⠀⠀ ﾟׅ   *5*teen⠀⁠♱⠀fem*masc* achillean
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⠀mainly alone on ptㅤ𓋜ㅤfilojp
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⠀semi-offtab on ptㅤ𓋜ㅤfilojp
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[neospring](https://neospring.org/@paranormal)⠀[friendlist](https://rentry.co/witheringhope)
