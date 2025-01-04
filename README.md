@@ -1,4 +1,4 @@
-https://spotify-github-profile.kittinanx.com/api/view?uid=ytli9u7trg8a0ujmzzshj33yn&redirect=true
+<p align="center"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yrnrhekscg4wxkr6a4siw2vw34&redirect=true"></p>
 <p align="center"><img src="https://files.catbox.moe/sdrauj.png" width="50%" height="50%"></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=c7b09b&style=for-the-badge&label=(⁠*⁠´.｀⁠*⁠)&style=plastic"></p>
 
