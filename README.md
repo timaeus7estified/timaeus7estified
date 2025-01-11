@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀semi-offtab on ptㅤ𓋜ㅤw2i if i’m away
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[neospring](https://neospring.org/@paranormal)⠀[atabook](https://mors.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[neospring](https://neospring.org/@paranormal)⠀[新book](https://mors.atabook.org/)
 ㅤ
 
 
