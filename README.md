@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀semi-offtab on ptㅤ𓋜ㅤw2i if i’m away
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[strawpage](https://faketears.straw.page)⠀[新book](https://mors.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/dearestpatient)⠀[strawpage](https://faketears.straw.page)⠀[twitter](https://x.com/dearestpatient)
 ㅤ
 
 
