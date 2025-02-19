@@ -6,11 +6,3 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀⠀⠀⠀[rentry](https://rentry.co/moeman)⠀[strawpage](https://neapolitanpup.straw.page)⠀[twitter](https://x.com/dearestpatient)⠀[atabook](https://mors.atabook.org)
-ㅤ
-
-
-
-
-
-
-formerly fleurdeli / foulmouthed / vilestangel
