@@ -1,3 +1,3 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=751414&style=for-the-badge&label=caltrops&style=plastic"></p>
-<p align="center"><img src="https://files.catbox.moe/ok2esj.jpg" height="50%" width="50%"></p>
-place holder my repository art is still wip..
+<p align="center"><img src="https://files.catbox.moe/ywso40.jpg" height="50%" width="50%"></p>
+you see this ugly person who cosplays as chance and mispells shit here? that's my one and only OOMF right there. did you guys know that they're so goddamn cool and awesome? that's right. my super sick and awesome friend EVER. literally the coolest person EVER i cant believe they actually stuck with me and is my only friend that didnt leave since what. 4 years? the HELL? you've been here for so long? YOU"RE MY FRIEND???? hi artful if you see this know that you're awesome, cared for, and loved by me, your gf, and friends bro.. i'm here for ya anytime you need someone to talk to slash penis
